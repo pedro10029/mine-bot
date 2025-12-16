@@ -1,0 +1,2 @@
+# mine-bot
+qwqwq
